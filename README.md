@@ -11,4 +11,4 @@ Me encanta programar en varios lenguajes como JS, Python, Java y C#, pero actual
 
 En mi tiempo libre, me gusta jugar a juegos competitivos como Valorant. Me ayuda a mantenerme enfocado y me permite mejorar mis habilidades estratégicas, lo cual también es algo que aplico en el desarrollo de videojuegos.
 
-Mi meta es poder trabajar en la industria de los videojuegos, creando juegos que no solo sean divertidos, sino que también dejen una huella en los jugadores.
+Mi meta es poder trabajar en la industria de los videojuegos, creando juegos que no solo sean divertidos, sino que también dejen una huella en los jugadores ♥.
